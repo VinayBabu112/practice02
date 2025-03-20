@@ -1,1 +1,2 @@
 # practice02
+The first season of the American television series Loki, based on Marvel Comics featuring the character of the same name, sees Loki brought to the mysterious Time Variance Authority after stealing the Tesseract during the events of Avengers: Endgame, and is forced to help catch a dangerous variant version of himself.
